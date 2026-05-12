@@ -1,4 +1,4 @@
-# 
+# advanced NFT Bot for nft sniper bot | snipe-list-management & mint-detection is the best nft sniper bot, featuring snipe-list-management and mint-detection. Fast, smart, and
 
 
 
